@@ -1,1 +1,0 @@
-# etecs-baixada
